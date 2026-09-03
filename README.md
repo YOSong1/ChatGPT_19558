@@ -8,3 +8,8 @@
 ------------------
 -[부교재] Gemini로 일하는 법 — 구글 AI로 완성하는 사무 업무 자동화  
 -[링  크] https://wikidocs.net/book/20705
+
+
+-----------------------
+
+https://korea-live-weather.b5sxbxsghj.chatgpt.site/
