@@ -10,10 +10,6 @@
 -[링  크] https://wikidocs.net/book/20705
 
 
------------------------
-
-https://korea-live-weather.b5sxbxsghj.chatgpt.site/
-
 
 -----------------
 [내가 만들고 싶은거 - 작성해서 올리세요]
