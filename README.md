@@ -17,3 +17,7 @@
 https://drive.google.com/drive/folders/1VmWezcQcICL5He9HINoDZuNrdJiNBqSZ?usp=drive_link
 
 
+-----------------------
+https://brave.com/download/
+
+
