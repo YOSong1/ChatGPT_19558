@@ -10,23 +10,9 @@
 -[링  크] https://wikidocs.net/book/20705
 
 
-
------------------
-[내가 만들고 싶은거 - 작성해서 올리세요]
-
-https://drive.google.com/drive/folders/1n2sN-gzeZnavJVZ4WqqFVedYRCy3Rfc3?usp=drive_link
-
------------------------
-https://brave.com/download/
+-[부교재] Claude로 일하는 법 — 업무 활용 가이드 기본편
+-[링  크] https://wikidocs.net/book/19445
 
 
-------------------
-https://catherine-song-portfolio.b5sxbxsghj.chatgpt.site/
-
-
-
-------------------------
-
-https://service-426911.ai.studio
 
 
