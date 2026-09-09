@@ -21,5 +21,9 @@
 
 https://brave.com/ko/download/
 
+----------------------------------------------------
+
+https://chatgpt.com/g/g-6aa0c51e204c8191b8ff1d820d01ba44-somae-maecul-jadong-bunseog
+
 
 
